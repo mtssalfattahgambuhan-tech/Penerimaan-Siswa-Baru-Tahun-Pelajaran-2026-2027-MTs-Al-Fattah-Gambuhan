@@ -1,0 +1,2 @@
+# Penerimaan-Siswa-Baru-Tahun-Pelajaran-2026-2027-MTs-Al-Fattah-Gambuhan
+MENCETAK GENERASI BERTAQWA BERKARAKTER DAN BERPRESTASI
